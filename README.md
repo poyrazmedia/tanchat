@@ -1,4 +1,9 @@
 # 🎙️ Tanchat Canlı Sohbet
+TanChat sesli ve görüntülü sohbet ederken para kazanmanıza olanak sağlayan mobil uygulamadır, apple store'da ve google playde yer alan güvenli bir sisteme sahiptir, ek gelir elde etmek isteyen, internetten para kazandıran mobil uygulamalar arayanlar, daha önce başka platformda yayıncılık yapan arkadaşlar tanchat mobil uygulaması sayesinde daha yüksek kazançlar elde edebilirsiniz, Gold Agency ajansımıza kayıt olarak sizlerde hemen para kazanmaya başlayabilirsiniz, tek yapmanız gereken whatsapp numaramız üzerinden bizlere ulaşmaktır.
+
+Hemen iletişme geçmek için aşağıdaki whatsapp linkimize tıklayabilirsiniz yada daha fazla bilgi sahibi olmak isterseniz goldagency.org web sitemizi ziyaret edebilirsiniz.
+[Gold Agency WhatsApp](https://wa.me/905532985622?text=Merhaba+Yayinci+Olmak+istiyorum)
+
 
 ## 💡 Tanchat Canlı Sohbet Nedir?
 ![TanChat Canlı Sohbet](https://h5.tanchat.live/img/introduce@2x.29bb32fb.png) 
