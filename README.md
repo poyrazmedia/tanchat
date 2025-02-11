@@ -1,7 +1,7 @@
 # 🎙️ Tanchat Canlı Sohbet
 
 ## 💡 Tanchat Canlı Sohbet Nedir?
-
+https://h5.tanchat.live/img/introduce@2x.29bb32fb.png
 Tanchat Canlı Sohbet, internetten gelir elde etmek isteyen kadınlara özel bir platformdur. Gold Agency olarak, sesli ve görüntülü sohbet platformlarında profesyonel destek sağlayarak, kazançlı ve güvenli bir çalışma ortamı sunuyoruz. Hiçbir yatırım yapmadan, yalnızca sohbet ederek para kazanabilir ve esnek çalışma saatleriyle kendi işinizin patronu olabilirsiniz.
 
 ## 🚀 Neden Tanchat Canlı Sohbet?
